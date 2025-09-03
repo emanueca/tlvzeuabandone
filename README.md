@@ -1,3 +1,2 @@
 # tlvzeuabandone
-eu abandonei (spoiler)
-apenas pra guardar de recordção os fails
+eu abandonei (spoiler), apenas pra guardar de recordção os fails
